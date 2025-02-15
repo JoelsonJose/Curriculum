@@ -1,1 +1,1 @@
-### Meu curriculum, está em desenvolvimento 
+### Meu curriculum
